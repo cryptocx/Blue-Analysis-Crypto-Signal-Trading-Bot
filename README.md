@@ -1,0 +1,1 @@
+# Blue-Analysis-Crypto-Signal-Trading-Bot
